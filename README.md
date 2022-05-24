@@ -1,0 +1,8 @@
+-# sobre mim
+- 
+- 👋 ola,eu sou _@eloisaneve_
+- 👀 [meu instagram](Instagram.com/eloisanevesss)
+- 🇧🇷
+- ♋ 16y
+- quem me proteje não dorme 🍌
+- aqui tem um bando de loko, loko por ti corinthians... 🖤 🤍
